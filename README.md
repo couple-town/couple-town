@@ -4,11 +4,13 @@
 
 𝘿𝙞𝙨𝙘𝙡𝙖𝙞𝙢𝙚𝙧: 𝙋𝙧𝙤𝙨𝙝𝙞𝙥 𝙖𝙣𝙙 𝙞𝙣𝙘𝙚𝙨𝙩 𝙬𝙞𝙡𝙡 𝙣𝙤𝙩 𝙗𝙚 𝙖𝙙𝙙𝙚𝙙.
 
+<h4>ꜰᴇʟʟ ꜰʀᴇᴇ ᴛᴏ ᴄᴏʀʀᴇᴄᴛ ᴜꜱ ɪꜰ ᴡᴇ ᴍᴀᴋᴇ ᴀɴʏ ᴍɪꜱᴛᴀᴋᴇꜱ!!!!!</h4>
+
 <h1>𝒩𝑜𝓂𝒾𝓃𝒶𝓉𝒾𝑜𝓃𝓈</h1>
 
 <a href="https://github.com/MMYDElMOS">MMYDElMOS</a> (ᴍʏᴅᴇɪ) & <a href="https://github.com/FLAM3REAV3R">FLAM3REAV3R</a> (ꜰʟᴀᴍᴇ ʀᴇᴀᴠᴇʀ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ꜰʟᴀᴍᴇᴅᴇɪ
 
-<a href="https://github.com/chevaIier">chevalier</a> & <a href="https://github.com/faelinnea">faelinnea</a> ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ɴᴏʜɴᴇᴀ
+<a href="https://github.com/chevaIier">chevalier</a> (​🇱​​🇴​​🇭​​🇪​​🇳​) & <a href="https://github.com/faelinnea">faelinnea</a> (ʟɪɴɴᴇᴀ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ​🇱​​🇴​​🇭​​🇳​​🇪​​🇦​​
 
 <a href="https://github.com/StaticAngels">StaticAngels</a> (ᴘʟᴀɴᴇᴛʟᴏʀᴅ) , <a href="https://github.com/spokeizhere">spokeizhere</a> (ꜱᴘᴏᴋᴇ) & <a href="https://github.com/straxesoda">straxesoda</a> (ᴍᴀᴘɪᴄᴄ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ʙᴜʙʙʟᴇ ɢᴜᴘᴘɪᴇꜱ
 
