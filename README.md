@@ -10,7 +10,7 @@
 
 <a href="https://github.com/MMYDElMOS">MMYDElMOS</a> (ᴍʏᴅᴇɪ) & <a href="https://github.com/FLAM3REAV3R">FLAM3REAV3R</a> (ꜰʟᴀᴍᴇ ʀᴇᴀᴠᴇʀ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ꜰʟᴀᴍᴇᴅᴇɪ
 
-<a href="https://github.com/chevaIier">chevalier</a> (​🇱​​🇴​​🇭​​🇪​​🇳​) & <a href="https://github.com/faelinnea">faelinnea</a> (ʟɪɴɴᴇᴀ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ​🇱​​🇴​​🇭​​🇳​​🇪​​🇦​​
+<a href="https://github.com/chevaIier">chevalier</a> (​ʟᴏʜᴇɴ​) & <a href="https://github.com/faelinnea">faelinnea</a> (ʟɪɴɴᴇᴀ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ​ʟᴏʜɴᴇᴀ​
 
 <a href="https://github.com/StaticAngels">StaticAngels</a> (ᴘʟᴀɴᴇᴛʟᴏʀᴅ) , <a href="https://github.com/spokeizhere">spokeizhere</a> (ꜱᴘᴏᴋᴇ) & <a href="https://github.com/straxesoda">straxesoda</a> (ᴍᴀᴘɪᴄᴄ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ʙᴜʙʙʟᴇ ɢᴜᴘᴘɪᴇꜱ
 
