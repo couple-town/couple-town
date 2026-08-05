@@ -9,7 +9,7 @@
 
 <h4> ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄᴏʀʀᴇᴄᴛ ᴜꜱ ɪꜰ ᴡᴇ ᴍᴀᴋᴇ ᴀɴʏ ᴍɪꜱᴛᴀᴋᴇꜱ!!!!!</h4>
 
-𝓁𝒶𝓈𝓉 𝓊𝓅𝒹𝒶𝓉𝑒: 04.08
+𝓁𝒶𝓈𝓉 𝓊𝓅𝒹𝒶𝓉𝑒: 05.08
 
 
 <h1>𝒩𝑜𝓂𝒾𝓃𝒶𝓉𝒾𝑜𝓃𝓈</h1>
@@ -20,3 +20,8 @@
 
 <a href="https://github.com/StaticAngels">StaticAngels</a> (ᴘʟᴀɴᴇᴛʟᴏʀᴅ) , <a href="https://github.com/spokeizhere">spokeizhere</a> (ꜱᴘᴏᴋᴇ) & <a href="https://github.com/straxesoda">straxesoda</a> (ᴍᴀᴘɪᴄᴄ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ʙᴜʙʙʟᴇ ɢᴜᴘᴘɪᴇꜱ
 
+<a href="https://github.com/martycorn">martycorn</a> (ᴛɪʟʟ) & <a href="https://github.com/Mxstique">Mxstique</a> (ɪᴠᴀɴ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ɪᴠᴀɴᴛɪʟʟ
+
+<a href="https://github.com/2D-3">2D-3</a> (ᴍɪᴢɪ) & <a href="https://github.com/joosbocks">joosbocks</a> (ꜱᴜᴀ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴍɪᴢɪꜱᴜᴀ
+
+<a href="https://github.com/T0R4X ">T0R4X</a> (ᴅʀ. ʟᴜᴅᴡɪɢ) & <a href="https://github.com/Noctiluvancy">Noctiluvancy</a> (ᴍɪᴋʜᴀɪʟ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ʜᴇᴀᴠʏᴍᴇᴅɪᴄ
