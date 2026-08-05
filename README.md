@@ -18,7 +18,7 @@
 
 <a href="https://github.com/chevaIier">chevalier</a> (​ʟᴏʜᴇɴ​) & <a href="https://github.com/faelinnea">faelinnea</a> (ʟɪɴɴᴇᴀ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ​ʟᴏʜɴᴇᴀ​
 
-<a href="https://github.com/StaticAngels">StaticAngels</a> (ᴘʟᴀɴᴇᴛʟᴏʀᴅ) , <a href="https://github.com/spokeizhere">spokeizhere</a> (ꜱᴘᴏᴋᴇ) & <a href="https://github.com/straxesoda">straxesoda</a> (ᴍᴀᴘɪᴄᴄ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ʙᴜʙʙʟᴇ ɢᴜᴘᴘɪᴇꜱ
+<a href="https://github.com/StaticAngels">StaticAngels</a> (ᴘʟᴀɴᴇᴛʟᴏʀᴅ) , <a href="https://github.com/spokeizhere">spokeizhere</a> (ꜱᴘᴏᴋᴇ) & <a href="https://github.com/straxesoda">straxesoda</a> (ᴍᴀᴘɪᴄᴄ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ʙᴜʙʙʟᴇ ɢᴜᴘᴘɪᴇꜱ (platonic)
 
 <a href="https://github.com/martycorn">martycorn</a> (ᴛɪʟʟ) & <a href="https://github.com/Mxstique">Mxstique</a> (ɪᴠᴀɴ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ɪᴠᴀɴᴛɪʟʟ
 
