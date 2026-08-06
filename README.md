@@ -24,6 +24,8 @@
 
 <a href="https://github.com/T0R4X ">T0R4X</a> (ᴅʀ. ʟᴜᴅᴡɪɢ) & <a href="https://github.com/Noctiluvancy">Noctiluvancy</a> (ᴍɪᴋʜᴀɪʟ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ʜᴇᴀᴠʏᴍᴇᴅɪᴄ
 
+<a href="https://github.com/pupfies">pupfies</a> (ᴊᴜᴅᴇʟᴏᴡ) & <a href="https://github.com/decayingcorpses">decayingcorpses</a> (ꜱʜᴀʀᴘɴᴇꜱꜱ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ꜱʜᴀʀᴘʟᴏᴡ
+
 <a href="https://github.com/dearIamb">dearIamb</a> (ᴡᴏᴏᴅʏ) & <a href="https://github.com/seraphlazer">seraphlazer</a> (ʙʟᴏᴄᴋʏ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴡᴏᴏᴅʙʟᴏᴄᴋ
 
 <a href="https://github.com/devimccallion">devimccallion</a> (ᴊᴀᴋᴇ) & <a href="https://github.com/0mbii">0mbii</a> (ᴅɪʀᴋ)  ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴅɪʀᴋᴊᴀᴋᴇ
