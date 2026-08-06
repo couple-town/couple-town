@@ -33,3 +33,7 @@
 <a href="https://github.com/undyingregret">undyingregret</a> (ᴛᴡᴏ-ᴛɪᴍᴇ) & <a href="https://github.com/omegamaie">omegamaie</a> (ᴀᴢᴜʀᴇ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴀᴢᴜʀᴇᴛɪᴍᴇ
 
 <a href="https://github.com/DETERMlNATION">DETERMlNATION</a> & <a href="https://github.com/FlRSTFALLEN">FlRSTFALLEN</a> ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴄʜᴀʀɪꜱᴋ
+
+<a href="https://github.com/flairforthedramatic">flairforthedramatic</a> (ʀʏʟᴀɴᴅ ɢʀᴀᴄᴇ) & <a href="https://github.com/whokilledmarkiplier">whokilledmarkiplier</a> (ꜱɪᴍᴏɴ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ʙʟᴏᴏᴅʏᴍᴀʀʏ
+
+<a href="https://github.com/misfortunes-s">misfortunes-s</a> (ᴛᴏᴍᴀᴛᴇ) & <a href="https://github.com/lovveblossoms">lovveblossoms</a> (ᴋᴀᴛɪᴇ ʙ) ᴀʀᴇ ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴛᴏᴍᴀᴛᴏꜱᴀᴜᴄᴇ
